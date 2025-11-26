@@ -5,7 +5,7 @@ This repository contains Unism, a social and philosophical operating system desi
 
 To combine into a greater group is unity.
 
-10 Instructions
+Instructions
 These are the immutable core directives of the system. They are designed to maximize equilibrium and minimize suffering.
 
  1 Autonomy: Give humans equal autonomy of body, mind, and spirit. No one may dilute our grand reality with personal myth any longer.

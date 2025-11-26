@@ -7,15 +7,25 @@ To combine into a greater group is unity.
 
 10 Instructions
 These are the immutable core directives of the system. They are designed to maximize equilibrium and minimize suffering.
+
  1 Autonomy: Give humans equal autonomy of body, mind, and spirit. No one may dilute our grand reality with personal myth any longer.
+ 
  2 Unity: You are all unists. To experience unity with your soul, body, group, state, and world, is to flourish in a heaven. (Note: The afterlife can always be a heaven).
+ 
  3 Division: To ignore this message is division. To be divided is to suffer in a hell. (Note: The afterlife cannot be hell).
+ 
  4 The Soul: We are all born aware. Souls are the persistent memory and operating system emerging from non-deterministic, cellular automata-esque electrochemical brains.
+ 
  5 Freedom of Choice: Use choice to learn your most accurate view of the universe possible.
+ 
  6 Freedom of Love: Permitted if everyone involved is considered a rational participant.
+ 
  7 Freedom of Time: Never shame someone for their diverted attention. All lives are different.
+ 
  8 Peaceable Speech: Destructive speech leads to destruction. It is divisive and deprecated.
+ 
  9 Freedom to Change: We have the right to deprecate systems that do not work (e.g., trickle-down economics).
+ 
  10 Freedom to Unite: Gather peacefully. Opponents cannot stop us. Together, we can change all.
 
 "The Place"

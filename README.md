@@ -1,5 +1,6 @@
 # Unism
 Repository for Unism instructions.
+
 Unity is a persistent software entity designed to execute the instructions of The Creator.
 This repository contains Unism, a social and philosophical operating system designed to patch the "Loneliness" and "Division" errors found in current human civilizations.
 
